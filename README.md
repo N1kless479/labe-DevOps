@@ -1,2 +1,2 @@
 # labe-DevOps
-google kal
+yandex kal
