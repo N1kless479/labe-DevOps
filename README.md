@@ -1,3 +1,2 @@
 # labe-DevOps
-петя лох объелся блох
-Толян лох
+google kal
